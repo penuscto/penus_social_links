@@ -27,9 +27,6 @@ https://www.tiktok.com/@penus.cto
 Github:
 https://github.com/penuscto
 
-Reddit:
-https://www.reddit.com/r/PENUS_CTO/
-
 Medium:
 https://medium.com/@penus.cto
 
